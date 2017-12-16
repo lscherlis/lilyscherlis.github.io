@@ -1,7 +1,7 @@
-# Lily Scherlis
+**Lily Scherlis**
 
-## Writing
+**Writing**
 [The Harvard Advocate](http://theharvardadvocate.com/contributor/219/Lily_Scherlis/)
 [Harvard Magazine](https://www.harvardmagazine.com/profile/lily-scherlis)
 
-## Visual
+**Visual**
